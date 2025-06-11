@@ -1,1 +1,1 @@
-CODSOFT RESUME: hhttps://sxnchxnx.github.io/CodSoft_portfolio/
+CODSOFT RESUME: https://sxnchxnx.github.io/CodSoft_portfolio/
